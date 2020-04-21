@@ -11,7 +11,7 @@ With physical prowess, one can find inner Zen, but you might have second thought
 <p>The ancient practice of Yoga has a deep connection with spiritual discipline. Though it is not a religion, it also controls your emotions to enhance the intellectual elite and to live a peaceful life.</p>
 
 <p>The spiritual aspect of Yoga is the way to find the answer to a quintessential question like “Who am I,” “Why am I here,” “what is the meaning of life” and many more. The more you connect yourself with Yoga, the more you develop the spirituality and intuitive wisdom. It will help you to attain different aspects of your life and connect with your soul.</p> 
-<img src="https://cdn.pixabay.com/photo/2015/10/31/12/28/buddha-1015552_960_720.jpg" alt="Yoga Teacher Training" height="600" width="400">
+<img src="https://cdn.pixabay.com/photo/2015/10/31/12/28/buddha-1015552_960_720.jpg" alt="Yoga Teacher Training" height="400" width="600">
 <p>In Yogic philosophy, there are seven spiritual laws that yoga students are taught to follow the path of enlightenment. Each rule has its own aspect that develops spiritual qualities and helps you to get an answer to some quintessential question. 
 In Indian <a href="https://rishikeshvinyasayogaschool.com/yoga-teacher-training-in-rishikesh/">Yoga teacher training</a>, you will learn yogic philosophy that allows students to understand about spiritual elite and find the inner Zen.</p>
 
